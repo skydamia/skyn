@@ -14,7 +14,7 @@ JANGAN CEPAT PUTUS ASA
 Hello Everyone
 
 Welcome to my page
-
+Hello
 I was here! Yay!
 
 I am learning.
