@@ -1,10 +1,21 @@
 # git-sandbox
 
+HI EVERYONE  🤩🤩🤩🤩
+asdf
+
+
+Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
+
+kg pisang bersiri siri
+
 yakyak yeaaaaa
 
 🫠🫠🫠
 
+sleepy zzzz
+
 This is a melting face emoji
+
 
 Worry-free sandbox repository for learning.
 
@@ -43,6 +54,7 @@ Congratulation !
 Hi and hello !
 
 hello and hi
+
 Hi! I'm here too..
 
 Learn something new
@@ -72,13 +84,7 @@ happy
 
 bila nak balik
 
-bila nak balik
-
-bila nak balik
-
-bila nak balik
-
-bila nak balik
+salam sejahtera semua......
 
 birthday
 
@@ -87,8 +93,15 @@ kkrikkk...krikkkk
 
 im waitinggggg
 
- 
+
+Hi there.. Everything is FINE HERE.. 
+Hi! I'm here too..
+
+
+
 ainnnn
+
+tiredddddd
 
 PKG tanjung bunga
 
@@ -96,5 +109,14 @@ Hi from PKG Tg Bungah
 Take it easy !
 
 
+
 tambah tolak darab bahagi
 
+
+Hihi 
+Hihi
+
+try
+krikrikrik
+
+hi semua
