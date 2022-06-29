@@ -1,3 +1,5 @@
+LEARN IS FUN
+
 # git-sandbox
 hahahahahahahhaha
 
