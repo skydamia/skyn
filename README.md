@@ -92,7 +92,4 @@ Hi! I'm here too..
 
 ainnnn
 
-PKG tanjung bunga
-
-Hi from PKG Tg Bungah
-Take it easy !
+tiredddddd
