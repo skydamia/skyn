@@ -72,13 +72,7 @@ happy
 
 bila nak balik
 
-bila nak balik
-
-bila nak balik
-
-bila nak balik
-
-bila nak balik
+salam sejahtera semua......
 
 birthday
 
@@ -90,9 +84,3 @@ im waitinggggg
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
 
-ainnnn
-
-PKG tanjung bunga
-
-Hi from PKG Tg Bungah
-Take it easy !
