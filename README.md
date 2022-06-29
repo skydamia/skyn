@@ -1,4 +1,5 @@
 # git-sandbox
+HI EVERYONE  🤩🤩🤩🤩
 
 yakyak yeaaaaa
 
@@ -41,32 +42,6 @@ Happy
 Congratulation !
 
 Hi and hello !
-
-hello and hi
-Hi! I'm here too..
-
-Learn something new
-
-happy birthday
-
-hello everybody in nibong tebal
-
-Sejukkkkkkkk.....
-
-hello there
-
-Sleeeeeeeeeeeeepyhead
-
-sel-sel otak terus berhubung🤣
-
-happy birthday
-
-Hai saya dari jawi
-
-
-happy birthday
-enjoy belajar
-
 
 happy 
 
