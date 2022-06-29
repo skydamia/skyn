@@ -1,7 +1,17 @@
 # git-sandbox
+hahahahahahahhaha
+
+HI EVERYONE  🤩🤩🤩🤩
+asdf
+
+Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
+
+kg pisang bersiri siri
 
 yakyak yeaaaaa
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
+
+sleepy zzzz
 
 This is a melting face emoji
 
@@ -42,11 +52,13 @@ Congratulation !
 Hi and hello !
 
 hello and hi
+
 Hi! I'm here too..
 
 Learn something new
 
 happy birthday
+Selamat Hari Raya Haji
 
 hello everybody in nibong tebal
 
@@ -66,10 +78,21 @@ Hai saya dari jawi
 happy birthday
 enjoy belajar
 
+
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
 happy 
 
 bila nak balik
+
+
+...............................................................
+
+
+happy 
+#############################################################################
+bila nak balik
+
+salam sejahtera semua......
 
 birthday
 
@@ -77,14 +100,34 @@ happy birthday
 kkrikkk...krikkkk
 
 im waitinggggg
-
+print (" Hello World")
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
 
 ainnnn
 
+tiredddddd
+
 PKG tanjung bunga
 
 Hi from PKG Tg Bungah
 Take it easy !
+
 hellooooooo
+
+@@Balik Awal@@
+
+tqsm for ur info
+
+TQ PSC! TQ to the most scary tutor but sweet!
+
+tambah tolak darab bahagi
+
+
+Hihi 
+Hihi
+
+try
+krikrikrik
+
+hi semua
