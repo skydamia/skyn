@@ -58,6 +58,7 @@ Hi! I'm here too..
 Learn something new
 
 happy birthday
+Selamat Hari Raya Haji
 
 hello everybody in nibong tebal
 
@@ -89,7 +90,7 @@ happy birthday
 kkrikkk...krikkkk
 
 im waitinggggg
-
+print (" Hello World")
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
 
@@ -101,6 +102,9 @@ PKG tanjung bunga
 
 Hi from PKG Tg Bungah
 Take it easy !
+
+
+@@Balik Awal@@
 
 tqsm for ur info
 
