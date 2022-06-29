@@ -6,6 +6,12 @@ yakyak yeaaaaa
 
 This is a melting face emoji
 
+# A Fireworks Line
+
+🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆
+
+---
+
 Worry-free sandbox repository for learning.
 
 Jom pergi makan kat Lotus...mcm2 ada
