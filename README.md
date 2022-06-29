@@ -17,6 +17,7 @@ Fom Sungai Bakap
 KEEP LEARNING
 
 BELAJAR SELAGI TERDAYA
+feeeenatttt
 
 I love TO learn coding
 JANGAN CEPAT PUTUS ASA
@@ -91,6 +92,7 @@ Hi there.. Everything is FINE HERE..
 Hi! I'm here too..
 
 ainnnn
+nak balik sekarang, boleh x?
 
 PKG tanjung bunga
 
