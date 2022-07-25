@@ -18,7 +18,7 @@ HI EVERYONE  🤩🤩🤩🤩
 Life is good
 
 Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
-
+Hi everyone!
 kg pisang bersiri siri
 
 hi Mr ChanJuPing😍
@@ -154,6 +154,7 @@ try
 krikrikrik
 
 hi semua
+
 Yo yo, rain, sleeping time
 
 Life is good!
