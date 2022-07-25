@@ -11,7 +11,7 @@ Worry-free sandbox repository for learning.
 hahahahahahahhaha
 
 HI EVERYONE  🤩🤩🤩🤩
-asdf
+Life is good
 
 Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 
@@ -150,3 +150,5 @@ try
 krikrikrik
 
 hi semua
+
+Life is good!
