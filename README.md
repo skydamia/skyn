@@ -2,6 +2,8 @@ LEARN IS FUN
 
 # git-sandbox
 
+My hometown is known for durians! I hope you all enjoy them.
+
 Have a nice day 
 Worry-free sandbox repository for learning.
 😍
