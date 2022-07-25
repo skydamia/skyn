@@ -2,6 +2,8 @@ LEARN IS FUN
 
 # git-sandbox
 
+My hometown is known for durians! I hope you all enjoy them.
+
 Have a nice day 
 Worry-free sandbox repository for learning.
 😍
@@ -9,7 +11,7 @@ Worry-free sandbox repository for learning.
 hahahahahahahhaha
 
 HI EVERYONE  🤩🤩🤩🤩
-asdf
+Life is good
 
 Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 
@@ -150,3 +152,5 @@ krikrikrik
 hi semua
 
 Yo yo, rain, sleeping time
+
+Life is good!
