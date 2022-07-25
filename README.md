@@ -1,5 +1,8 @@
-Seafood Tomyam is really good!
 
+LEARN IS FUN
+nur fairuz
+
+Seafood Tomyam is really good!
 
 
 LEARN IS FUN
@@ -155,6 +158,7 @@ try
 krikrikrik
 
 hi semua
+
 
 Yo yo, rain, sleeping time
 
