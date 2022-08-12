@@ -150,6 +150,7 @@ TQ PSC! TQ to the most scary tutor but sweet!
 
 tambah tolak darab bahagi
 
+おれのおしは、だれだけ？
 
 Hihi 
 Hihi
