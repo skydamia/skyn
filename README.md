@@ -159,6 +159,7 @@ krikrikrik
 
 hi semua
 
+print( "hi semua");
 
 Yo yo, rain, sleeping time
 
