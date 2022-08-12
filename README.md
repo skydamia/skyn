@@ -150,6 +150,7 @@ TQ PSC! TQ to the most scary tutor but sweet!
 
 tambah tolak darab bahagi
 
+おれのおしは、だれだけ？
 
 Hihi 
 Hihi
@@ -161,6 +162,17 @@ hi semua
 
 print( "hi semua");
 
+Hi Everything!!!
 Yo yo, rain, sleeping time
 
 Life is good!
+
+USM We Lead!
+
+Yo yo, rain, sleeping time
+
+Life is good!
+
+testing 123
+
+Hellooo
