@@ -77,6 +77,8 @@ Congratulation !
 
 Hi and hello !
 
+Selamat Petang Semua
+
 hello and hi
 
 Hi! I'm here too..
@@ -106,6 +108,9 @@ enjoy belajar
 
 hhhhhh
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
+
+happy too
+
 happy 
 
 bila nak balik
